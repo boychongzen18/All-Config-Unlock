@@ -10,7 +10,7 @@
 
 My Youtube    : https://www.youtube.com/channel/UCKdOPQ_iIXcqK17PB_2RMdQ
 
-Link Tutorial : 
+Link Tutorial : https://drive.google.com/file/d/1NB7YQwFMmd5rBx97vFA8SODH7eqPOzPF/view
 
 My Website    : https://hackingforlive.wordpress.com
 
